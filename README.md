@@ -1,2 +1,0 @@
-# chtiostia
-tramqui
